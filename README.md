@@ -1,0 +1,1 @@
+# root-Galaxy-A10E
